@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @BNJMNHRN 
+- 👋 Hi, I’m Benjamin 
 - 📫 How to reach me romanspacetelescope@protonmail.com or (614) 582-7391
