@@ -1,2 +1,1 @@
-- 👋 Hi, my name is Benjamin
-- 📫 How to reach me romanspacetelescope@protonmail.com or (614) 582-7391
+- 👋 Hi, my name is Benjamin. If you want to reach me just comment through repository.
